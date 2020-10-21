@@ -1,0 +1,2 @@
+# for-dell
+DZ
